@@ -1,2 +1,2 @@
-# Debere de mi flaca bella
+# Deberes de mi flaca bella
 deberes de la flaca
